@@ -10,8 +10,8 @@ I am not responsible for any account bans, penalties, or any other consequences 
 Use it at your own risk and be aware of the potential implications.
 
 ## Discord
-Join Discord for support 
-https://discord.gg/btJ5RVCjzb
+Join Discord for support
+https://discord.gg/BZnZeTjN38
 Join Makcu Discord for Makcu Support
 https://discord.gg/wHqqw5eWV5
 ## Features
